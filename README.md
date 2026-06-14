@@ -33,7 +33,7 @@ FlyingBird 飞鸟机场是一家主打“稳定优先、性价比平衡”的订
 ## 二、飞鸟机场官网入口（最新地址）
 
 👉 官网入口
-**点击进入 [FlyingBird飞鸟机场官网](https://a08.fbaffa04.cc/auth/register?code=iVeb5ZJC)**
+**点击进入 [FlyingBird飞鸟机场官网](https://go2lk.pages.dev/t7b9gb)**
 
 ⚠️ 建议通过可信渠道获取最新地址，谨防钓鱼站。
 
